@@ -87,11 +87,99 @@ use code Looni for 5% off :) https://store.fishonmc.net/
 ### in order
 > If you’re a content creator looking for songs to use in editing: all of these should not trigger content ID; some are licensed by Epidemic Sounds and they will be noted accordingly
 
--
+- [Harmonica with SOUL!](https://www.youtube.com/shorts/d33QkvrDsvE)
 
--
+- [The Whistle Song slowed](https://www.youtube.com/watch?v=vvLbw0FdCrk)
 
--
+- [Talus Battle BotW](https://www.youtube.com/watch?v=z2vaSlpliEs)
+
+- [Persona 3 Portable - Moonlight FEMC Night Theme](https://www.youtube.com/watch?v=qA_egKvrCu0)
+
+- [Elevatorstuck](https://www.youtube.com/watch?v=V0RJPFOpBlg)
+
+- [Heynong Man](https://www.youtube.com/watch?v=unvHuLsbXIU)
+
+- [Oscar Garvin - Player Island](https://www.youtube.com/watch?v=kgABkT0LJv0)
+
+- [Limbus Company Casino Story Theme 1](https://www.youtube.com/watch?v=9ZR3fA2hv_U)
+
+- [Enderscape beta - bliss (stereo mix)](https://www.youtube.com/watch?v=HYCblAF7-8M)
+
+- [potsu - bossa uh](https://www.youtube.com/watch?v=FSnuF1FPSIU)
+
+- [LEMMiNO - Cipher](https://www.youtube.com/watch?v=b0q5PR1xpA0)
+
+- [Undertale - Hotel](https://www.youtube.com/watch?v=CgvMoz2LnWA)
+
+- [Genshin Impact - Rite of Battle](https://www.youtube.com/watch?v=M3CoUlbjQMs)
+
+- [Deltarune - Lancer](https://www.youtube.com/watch?v=GAhBQH0Kf1I)
+
+- [Terraria Music - Day](https://www.youtube.com/watch?v=x23I8f9PwlI)
+
+- [EngineMusic - Reuinion (village theme)](https://www.youtube.com/watch?v=RkrAb1X-i1g)
+
+- [OneShot - A God's Machine](https://www.youtube.com/watch?v=5E0BOS4e2MY)
+
+- [Perpetual Motion of Wind](https://www.youtube.com/watch?v=ndQ27H4Rqyw)
+
+- [Luigi's Mansion - Mansion (Dark Hallway)](https://www.youtube.com/watch?v=NdlErWd_Dpg)
+
+- [Duma's Scourge - Fire Emblem Echoes Shadows of Valentia](https://www.youtube.com/watch?v=DFttZzqq5EI)
+
+- [EPIDEMIC SOUNDS - I Am Unbreakable](https://www.youtube.com/watch?v=0tUiS7Wkm_w)
+
+- [Guardian Battle - BotW](https://www.youtube.com/watch?v=jrZq5vPKDEw))
+
+- [The Painful Way - Hades](https://www.youtube.com/watch?v=vqKoFKVxTYM)
+
+- [Animal Crossing gamecube - 7pm](https://www.youtube.com/watch?v=Ro_wHZy0vcE)
+
+- [OMORI - Underwater Highway](https://www.youtube.com/watch?v=mfUvvgsvKQ8)
+
+- [EPIDEMIC SOUNDS - Those Who Love](https://www.youtube.com/watch?v=jZzDM8CMiRc)
+
+- [Melty Blood Type Lumina - Actions in the Lower World](https://www.youtube.com/watch?v=nxzai8t_-xE)
+
+- [R.E.P.O. - Main Menu](https://www.youtube.com/watch?v=AA1PwHkkkk0)
+
+- [Kass' Theme - BOTW](https://youtu.be/Wx6CmERsmyo?si=H-RLNd1mprS2h2Lf)
+
+- [Nintendo Wii U - Mii Maker editing mii theme](https://youtu.be/oTu4WcpB9Iw?si=3mCOx67ZUuN7STxa)
+
+- [UTLRAKILL - Into the fire (calm)](https://www.youtube.com/watch?v=HBG_J1Keoxg)
+
+- [Optie Animation - Armageddon](https://www.youtube.com/watch?v=SmUC_kSw6eY)
+
+- [C418 - Pumpkin](https://www.youtube.com/watch?v=Cp_FtlAk-Ss)
+
+- [Persona 5 - Alleycat](https://www.youtube.com/watch?v=l5VwlMvjAhk)
+
+- [Sonic Advennture 2 - LIVE AND LEARN](https://www.youtube.com/watch?v=z1BRZg0GG0A)
+
+- [Break of Dawn - DEADBOLT](https://www.youtube.com/watch?v=Go4npp2ASiw)
+
+- [The Show - Castle Crashers](https://www.youtube.com/watch?v=hsrjhl8_m_Q)
+
+- [You're Mine - Carpenter Brut](https://www.youtube.com/watch?v=gQ5gtInauiI)
+
+- [Flag - prodbysquirt](https://www.youtube.com/watch?v=MmST4wkMT6M)
+
+- [Hub - Turok N64](https://www.youtube.com/watch?v=oHLJurNYkjw)
+
+- [Marvel Vs Capcom 2 - Clock Tower](https://www.youtube.com/watch?v=IqP4khryIxA)
+
+- [Space Pirates - Castle Crashers](https://www.youtube.com/watch?v=7HSritifpTI)
+
+- [First Wave - Jurassic Marsh - PvZ 2](https://www.youtube.com/watch?v=T3wT6RvPtCI)
+
+- [glare - Enderscape](https://www.youtube.com/watch?v=_M7cKCqIOJA)
+
+- [Rap is Man's Soul (Short Start edit)](https://www.youtube.com/watch?v=BC0AEb8aWAo)
+
+- [Drill to Heaven with Your XXX!! -First Time Outside version-](https://www.youtube.com/watch?v=Z7klyQsmVa8)
+
+- [Theme of Summers (From Earthbound)](https://www.youtube.com/watch?v=hQ_K-zvFJwY)
 
 <br>
 
