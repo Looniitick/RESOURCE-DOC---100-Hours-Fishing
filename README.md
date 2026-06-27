@@ -10,6 +10,8 @@
 use code Looni for 5% off :) https://store.fishonmc.net/
 
 [![Subscribe](https://img.shields.io/badge/YouTube-Subscribe-red?style=for-the-badge&logo=youtube&logoColor=white)](https://youtube.com/@Looniitick) ‎ 
+[![Discord](https://img.shields.io/badge/Join-5865F2?style=for-the-badge&logo=discord&logoColor=white)](https://discord.gg/nKMVURRxHY)
+
 
 ---
 
@@ -20,6 +22,9 @@ use code Looni for 5% off :) https://store.fishonmc.net/
 [Music](#music) 
 
 [References/Credits](#referencescredits)
+
+<img width="500" height="500" alt="fishonmc logo" src="https://github.com/user-attachments/assets/f753e4c3-dcd9-4734-abb9-b921082a9f17" />
+
 
 ---
 
