@@ -7,6 +7,8 @@
 
 -insert yt link here-
 
+use code Looni for 5% off :) https://store.fishonmc.net/
+
 [![Subscribe](https://img.shields.io/badge/YouTube-Subscribe-red?style=for-the-badge&logo=youtube&logoColor=white)](https://youtube.com/@Looniitick) ‎ 
 
 ---
