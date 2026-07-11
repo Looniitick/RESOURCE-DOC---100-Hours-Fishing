@@ -5,7 +5,7 @@
 ### Resource doc for stuff like MUSIC showcased in Looni's video
 **+ credits AAANDD computer hardware + editing software :)**
 
--insert yt link here-
+https://www.youtube.com/watch?v=cVga75529sY
 
 use code Looni for 5% off :) https://store.fishonmc.net/
 
